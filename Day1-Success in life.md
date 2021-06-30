@@ -11,7 +11,7 @@
 
 > pay attention on, spare no effort to do/in doing
 
-Dreams bring you hope and happiness. **In the process of** **struggling for** it, you cry, **sweat**, complain or event curse, but the joy of harvesting makes you forget all the pains and troubles you have **gone through**. So an old proverbs says that the sweeatest fruit is one that has **undergone** the bitterest **ordeal**.
+Dreams bring you hope and happiness. **In the process of** **struggling for** it, you cry, **sweat**, complain or even curse, but the joy of harvesting makes you forget all the pains and troubles you have **gone through**. So an old proverbs says that the sweeatest fruit is one that has **undergone** the bitterest **ordeal**.
 
 > no sweat
 
@@ -25,7 +25,7 @@ Dreams bring you hope and happiness. **In the process of** **struggling for** it
 
 > An eye for an eye. 
 
-There are several **keys to** sucess. First, your goal must be practical and practicable.If you set your goal too high, **chances are** that you will never **attain it**. Next you have to make a plan of doing it. Youcan take some steps to realize it.Since the process is quit tough, you need to be diligent, patient and **persevering**.
+There are several **keys to** sucess. First, your goal must be practical and practicable.If you set your goal too high, **chances are** that you will never **attain it**. Next you have to make a plan of doing it. You can take some steps to realize it. Since the process is quit tough, you need to be diligent, patient and **persevering**.
 
 > key to
 
@@ -35,7 +35,7 @@ There are several **keys to** sucess. First, your goal must be practical and pra
 
 > attain it
 
-Even if you meet with some difficulties or **frustrations**, just take them in your stride. You can always tell yourself that there is nothing **insurmountable**. With this wil and determination, success is sure to wait for you at the end of the tunnel!
+Even if you meet with some difficulties or **frustrations**, just take them in your stride. You can always tell yourself that there is nothing **insurmountable**. With this will and determination, success is sure to wait for you at the end of the tunnel!
 
 > frustration frustrated
 
