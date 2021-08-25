@@ -5,6 +5,8 @@
 
 > regard sth as sth
 
+
+
 > fame, famous
 
 > sense of accomplishments
