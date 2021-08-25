@@ -1,6 +1,8 @@
    Success means different things for different people. Some may **equate it with fame**, some with wealth and still some with accomplishments. For me, it means **fulfilling** one's dreams. **Whatever** your dreams are, you have a goal there and then **focus all your attention on it**.
 > equate sth with sth
 
+
+
 > regard sth as sth
 
 > fame, famous
